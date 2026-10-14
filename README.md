@@ -1,8 +1,12 @@
-![](https://file.garden/aZhxPOZ2KVa1kjKr/image-32.webp)
+<div align="center">
 
-^ this is a joke
-I love women im het
 
-***
+matt/matthias.  c+h  enc  &  w2i
 
-![](https://file.garden/aZhxPOZ2KVa1kjKr/Untitled980_20261013184609.png)
+he/him  only,  I  am  a  heterosexual  man
+
+rentry  is  a  [wip](rentry.co/wipd)
+
+![Alt Tag](https://file.garden/aZhxPOZ2KVa1kjKr/dandy's-world-dandys-world.gif)
+
+</div>
